@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zioratechy
+- 🌱 I’m currently learning data analysis 
+- 💞️ I’m looking to collaborate with companies and individuals to help them analyze data
+- 📫 How to reach me [LinkedIn](https://www.linkedin.com/in/udoamaka-juliet-8ab240256?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- 😄 Pronouns:she
